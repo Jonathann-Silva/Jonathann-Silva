@@ -8,4 +8,4 @@
 - 💬 Ask me about:
 - 📫 How to reach me: jonathan.silva.992.js@gmail.com
 - 😄 Pronouns: HE
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I like to study and I like to play!
